@@ -1,4 +1,4 @@
-Chapter 3: Developing a Meeting Mindset - Techniques for Cultivating a Meeting Mindset
+Techniques for Cultivating a Meeting Mindset
 ======================================================================================
 
 Developing a meeting mindset involves being intentional about our approach to meetings. In this chapter, we'll explore techniques for cultivating a meeting mindset, including preparing for the meeting, focusing on objectives, engaging in active listening, and following up after the meeting.

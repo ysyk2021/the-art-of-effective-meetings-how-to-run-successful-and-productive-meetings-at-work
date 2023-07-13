@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Barriers to Effective Meetings: Handling Difficult Conversations with Confidence
+Handling Difficult Conversations with Confidence
 ======================================================================================================
 
 Handling difficult conversations during meetings can be a challenge for many individuals and can hinder effective meeting outcomes. In this chapter, we will explore strategies for handling difficult conversations with confidence in order to promote successful meetings.

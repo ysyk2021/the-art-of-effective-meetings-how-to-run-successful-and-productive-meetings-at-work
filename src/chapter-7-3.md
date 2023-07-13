@@ -1,4 +1,4 @@
-Chapter 7: Following Up After Meetings: Communicating Results and Next Steps
+Communicating Results and Next Steps
 ============================================================================
 
 Communicating results and next steps after meetings is essential for ensuring that decisions and outcomes are implemented effectively. In this chapter, we will explore strategies for communicating results and next steps to promote successful meeting outcomes.

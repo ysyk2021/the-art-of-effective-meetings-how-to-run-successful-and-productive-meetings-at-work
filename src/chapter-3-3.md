@@ -1,4 +1,4 @@
-Chapter 3: Developing a Meeting Mindset: Setting Realistic Goals and Objectives
+Setting Realistic Goals and Objectives
 ===============================================================================
 
 Developing a meeting mindset involves setting realistic goals and objectives to ensure that meetings are productive, efficient, and successful. In this chapter, we will explore strategies for developing a meeting mindset through setting realistic goals and objectives.

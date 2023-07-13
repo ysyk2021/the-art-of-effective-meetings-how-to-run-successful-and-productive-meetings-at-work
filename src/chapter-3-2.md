@@ -1,4 +1,4 @@
-Chapter 3: Developing a Meeting Mindset: Utilizing Positive Self-Talk and Visualization
+Utilizing Positive Self-Talk and Visualization
 =======================================================================================
 
 Developing a meeting mindset involves utilizing positive self-talk and visualization techniques to promote a more positive and productive meeting environment. In this chapter, we will explore strategies for developing a meeting mindset through utilizing positive self-talk and visualization.

@@ -1,4 +1,4 @@
-Chapter 7: Following Up After Meetings: Developing Effective Follow-Up Strategies
+Developing Effective Follow-Up Strategies
 =================================================================================
 
 Developing effective follow-up strategies is essential for ensuring that decisions and outcomes from meetings are implemented effectively. In this chapter, we will explore strategies for developing effective follow-up strategies.

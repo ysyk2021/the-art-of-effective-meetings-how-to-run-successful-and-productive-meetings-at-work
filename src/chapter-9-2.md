@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Barriers to Effective Meetings: Dealing with Negative Attitudes and Behavior
+Dealing with Negative Attitudes and Behavior
 ==================================================================================================
 
 Negative attitudes and behavior can be significant barriers to effective meetings. In this chapter, we will explore strategies for dealing with negative attitudes and behavior in order to promote productive and successful meetings.

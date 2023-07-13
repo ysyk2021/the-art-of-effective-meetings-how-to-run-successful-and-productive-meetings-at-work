@@ -1,4 +1,4 @@
-Chapter 6: Improving Meeting Communication: Handling Conflict and Negative Attitudes
+Handling Conflict and Negative Attitudes
 ====================================================================================
 
 Handling conflict and negative attitudes during meetings is important for promoting effective communication and achieving successful outcomes. In this chapter, we will explore strategies for improving meeting communication by addressing conflict and negative attitudes.

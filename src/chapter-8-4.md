@@ -1,4 +1,4 @@
-Chapter 8: Implementing Meeting Best Practices: Managing Change and Adapting to New Technologies
+Managing Change and Adapting to New Technologies
 ================================================================================================
 
 Implementing meeting best practices requires a willingness to adapt to change and embrace new technologies. In this chapter, we will explore strategies for managing change and adapting to new technologies in order to promote productive and successful meetings.

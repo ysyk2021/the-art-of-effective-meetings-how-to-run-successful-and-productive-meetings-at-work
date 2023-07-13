@@ -1,4 +1,4 @@
-Chapter 6: Improving Meeting Communication - Developing Effective Communication Strategies for Meetings
+Developing Effective Communication Strategies for Meetings
 =======================================================================================================
 
 Effective communication is key to running successful and productive meetings. In this chapter, we'll explore strategies for improving communication in meetings, from setting clear objectives to managing group dynamics.

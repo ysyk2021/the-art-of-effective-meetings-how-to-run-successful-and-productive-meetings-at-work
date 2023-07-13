@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Understanding the Importance of Effective Meetings in the Workplace](chapter-1-1.md)
   - [Common Misconceptions About Meetings](chapter-1-2.md)
   - [Benefits of Running Productive and Efficient Meetings](chapter-1-3.md)
@@ -44,8 +43,5 @@
   - [Dealing with Negative Attitudes and Behavior](chapter-9-2.md)
   - [Managing Power Dynamics and Conflict](chapter-9-3.md)
   - [Handling Difficult Conversations with Confidence](chapter-9-4.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Recap of Key Strategies for Running Effective Meetings](chapter-10-1.md)
-  - [Final Thoughts and Advice](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

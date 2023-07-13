@@ -1,4 +1,4 @@
-Chapter 3: Developing a Meeting Mindset: Developing Empathy and Compassion Through Meetings
+Developing Empathy and Compassion Through Meetings
 ===========================================================================================
 
 Developing empathy and compassion through meetings is essential for creating a positive and productive meeting environment. In this chapter, we will explore strategies for developing a meeting mindset that promotes empathy and compassion.

@@ -1,4 +1,4 @@
-Chapter 4: Planning Successful Meetings: Setting Clear Objectives and Desired Outcomes
+Setting Clear Objectives and Desired Outcomes
 ======================================================================================
 
 Planning successful meetings involves setting clear objectives and desired outcomes to ensure that meetings are productive, efficient, and successful. In this chapter, we will explore strategies for planning successful meetings through setting clear objectives and desired outcomes.

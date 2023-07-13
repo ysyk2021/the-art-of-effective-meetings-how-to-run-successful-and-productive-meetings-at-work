@@ -1,4 +1,4 @@
-Chapter 2: Defining Effective Meetings - Understanding the Science Behind Productive Meetings
+Understanding the Science Behind Productive Meetings
 =============================================================================================
 
 The art of running effective meetings is grounded in science. In this chapter, we'll explore the research behind productive meetings and how it can inform our meeting practices.

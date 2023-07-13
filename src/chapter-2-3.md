@@ -1,4 +1,4 @@
-Chapter 2: Defining Effective Meetings - Assessing Your Personal Approach to Meetings
+Assessing Your Personal Approach to Meetings
 =====================================================================================
 
 In order to run effective meetings, it's important to assess your personal approach to meetings. This chapter will guide you through self-reflection and help you identify areas of improvement in your meeting practices.

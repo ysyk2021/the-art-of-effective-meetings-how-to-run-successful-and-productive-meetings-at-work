@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Barriers to Effective Meetings: Addressing Resistance and Skepticism
+Addressing Resistance and Skepticism
 ==========================================================================================
 
 Overcoming resistance and skepticism is essential for achieving productive and efficient meetings. In this chapter, we will explore strategies for addressing resistance and skepticism in order to promote successful meetings.

@@ -1,4 +1,4 @@
-Chapter 6: Improving Meeting Communication: Providing Feedback and Recognition
+Providing Feedback and Recognition
 ==============================================================================
 
 Providing feedback and recognition during meetings is important for promoting effective communication, building relationships, and achieving successful outcomes. In this chapter, we will explore strategies for improving meeting communication through providing feedback and recognition.

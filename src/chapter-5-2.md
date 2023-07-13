@@ -1,4 +1,4 @@
-Chapter 5: Leading Productive Meetings: Managing Time and Staying on Track
+Managing Time and Staying on Track
 ==========================================================================
 
 Managing time and staying on track during meetings is essential for achieving successful outcomes. In this chapter, we will explore strategies for leading productive meetings through effective time management.

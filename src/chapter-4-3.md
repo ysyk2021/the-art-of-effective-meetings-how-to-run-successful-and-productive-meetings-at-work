@@ -1,4 +1,4 @@
-Chapter 4: Planning Successful Meetings: Inviting the Right Participants
+Inviting the Right Participants
 ========================================================================
 
 Inviting the right participants to a meeting is essential for achieving successful outcomes. In this chapter, we will explore strategies for identifying and inviting the right participants to promote effective meetings.

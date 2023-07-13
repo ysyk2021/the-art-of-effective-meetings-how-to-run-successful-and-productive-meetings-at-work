@@ -1,4 +1,4 @@
-Chapter 1: Introduction - Common Misconceptions About Meetings
+Common Misconceptions About Meetings
 ==============================================================
 
 Meetings are a common part of the workplace, but there are many misconceptions about their purpose and effectiveness. In this chapter, we'll explore some common misconceptions about meetings and why they can be harmful to organizational success.

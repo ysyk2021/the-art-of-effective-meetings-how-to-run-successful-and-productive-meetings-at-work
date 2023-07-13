@@ -1,4 +1,4 @@
-Chapter 5: Leading Productive Meetings - Handling Difficult Situations with Grace and Tact
+Handling Difficult Situations with Grace and Tact
 ==========================================================================================
 
 As a meeting leader, it's important to be prepared for difficult situations that may arise during the course of a meeting. In this chapter, we'll explore strategies for handling difficult situations with grace and tact.

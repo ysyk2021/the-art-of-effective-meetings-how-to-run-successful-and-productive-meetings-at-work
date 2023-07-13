@@ -1,4 +1,4 @@
-Chapter 7: Following Up After Meetings: Tracking Progress and Measuring Results
+Tracking Progress and Measuring Results
 ===============================================================================
 
 Tracking progress and measuring results after meetings is essential for ensuring that decisions and outcomes are implemented effectively. In this chapter, we will explore strategies for tracking progress and measuring results to promote successful meeting outcomes.

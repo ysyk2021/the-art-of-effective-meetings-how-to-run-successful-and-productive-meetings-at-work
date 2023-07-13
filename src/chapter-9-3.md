@@ -1,4 +1,4 @@
-Chapter 9: Overcoming Barriers to Effective Meetings: Managing Power Dynamics and Conflict
+Managing Power Dynamics and Conflict
 ==========================================================================================
 
 Power dynamics and conflict can be significant barriers to effective meetings. In this chapter, we will explore strategies for managing power dynamics and conflict in order to promote productive and successful meetings.

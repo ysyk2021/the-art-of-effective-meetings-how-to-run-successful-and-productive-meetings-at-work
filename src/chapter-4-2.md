@@ -1,4 +1,4 @@
-Chapter 4: Planning Successful Meetings: Developing an Agenda
+Developing an Agenda
 =============================================================
 
 Developing an agenda is a crucial step in planning successful meetings. In this chapter, we will explore strategies for developing an effective meeting agenda.

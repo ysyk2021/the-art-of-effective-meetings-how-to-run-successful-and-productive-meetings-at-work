@@ -1,4 +1,4 @@
-Chapter 5: Leading Productive Meetings: Encouraging Participation and Engagement
+Encouraging Participation and Engagement
 ================================================================================
 
 Encouraging participation and engagement during meetings is important for promoting effective communication and achieving successful outcomes. In this chapter, we will explore strategies for leading productive meetings through encouraging participation and engagement.

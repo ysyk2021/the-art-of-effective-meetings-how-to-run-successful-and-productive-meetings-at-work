@@ -1,4 +1,4 @@
-Chapter 8: Implementing Meeting Best Practices: Developing Meeting Policies and Procedures
+Developing Meeting Policies and Procedures
 ==========================================================================================
 
 Developing meeting policies and procedures is essential for promoting effective meeting practices and driving success for the organization. In this chapter, we will explore strategies for implementing meeting best practices through the development of meeting policies and procedures.

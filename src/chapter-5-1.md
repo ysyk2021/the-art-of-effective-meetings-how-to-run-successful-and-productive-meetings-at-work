@@ -1,4 +1,4 @@
-Chapter 5: Leading Productive Meetings: Developing Effective Facilitation and Leadership Skills
+Developing Effective Facilitation and Leadership Skills
 ===============================================================================================
 
 Developing effective facilitation and leadership skills is essential for leading productive meetings. In this chapter, we will explore strategies for developing effective facilitation and leadership skills.

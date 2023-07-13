@@ -1,4 +1,4 @@
-Chapter 8: Implementing Meeting Best Practices - Providing Training and Professional Development Opportunities
+Providing Training and Professional Development Opportunities
 ==============================================================================================================
 
 Providing training and professional development opportunities is important for ensuring that meeting leaders and participants have the skills necessary to run successful and productive meetings. In this chapter, we'll explore strategies for providing training and professional development opportunities, including offering training in effective facilitation and leadership skills, communication and collaboration techniques, and technologies used for virtual meetings.

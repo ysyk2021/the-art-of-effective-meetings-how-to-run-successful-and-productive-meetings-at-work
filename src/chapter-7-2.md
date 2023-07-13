@@ -1,4 +1,4 @@
-Chapter 7: Following Up After Meetings: Assigning Action Items and Responsibilities
+Assigning Action Items and Responsibilities
 ===================================================================================
 
 Following up after meetings is essential for ensuring that decisions and outcomes are implemented effectively. In this chapter, we will explore strategies for assigning action items and responsibilities to promote successful meeting outcomes.

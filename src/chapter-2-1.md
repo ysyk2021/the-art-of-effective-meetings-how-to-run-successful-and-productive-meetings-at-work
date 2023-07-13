@@ -1,4 +1,4 @@
-Chapter 2: Defining Effective Meetings - Overview of Effective Meetings
+Overview of Effective Meetings
 =======================================================================
 
 In order to run effective meetings, it's important to first define what we mean by "effective." In this chapter, we'll explore the key characteristics of effective meetings and outline the benefits of running successful and productive meetings.

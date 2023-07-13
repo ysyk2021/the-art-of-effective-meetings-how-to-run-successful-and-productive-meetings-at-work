@@ -1,4 +1,4 @@
-Chapter 6: Improving Meeting Communication: Utilizing Active Listening Techniques
+Utilizing Active Listening Techniques
 =================================================================================
 
 Utilizing active listening techniques is important for improving meeting communication and achieving successful outcomes. In this chapter, we will explore strategies for improving meeting communication through utilizing active listening techniques.

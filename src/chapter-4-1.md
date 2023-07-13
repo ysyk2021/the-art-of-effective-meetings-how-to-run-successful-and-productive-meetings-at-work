@@ -1,4 +1,4 @@
-Chapter 4: Planning Successful Meetings: Understanding the Elements of Effective Meeting Planning
+Understanding the Elements of Effective Meeting Planning
 =================================================================================================
 
 Effective meeting planning is essential for achieving successful meeting outcomes. In this chapter, we will explore the elements of effective meeting planning and strategies for implementing them.
