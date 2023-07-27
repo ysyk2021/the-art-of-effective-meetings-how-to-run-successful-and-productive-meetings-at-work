@@ -1,0 +1,1 @@
+for the book "the art of effective meetings how to run successful and productive meetings at work", write a chapter: "encouraging participation and engagement".  Use Markdown format. Use English.

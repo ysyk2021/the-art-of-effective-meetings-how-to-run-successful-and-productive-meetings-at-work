@@ -15,4 +15,3 @@ By implementing these strategies and taking a proactive approach to improving me
 
 Remember, effective meetings require ongoing effort and commitment to improvement. By continuously evaluating and improving meeting processes and techniques, individuals can promote more effective meetings and drive success for the organization as a whole.
 
-Thank you for reading "The Art Of Effective Meetings: How To Run Successful And Productive Meetings At Work". We hope that the strategies and insights shared in this book will serve as valuable resources for promoting effective meeting practices and driving success in your organization.
