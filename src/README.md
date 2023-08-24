@@ -1,5 +1,4 @@
 
-
 Meetings are an essential part of the workplace, but all too often they can become unproductive and frustrating. Fortunately, running successful and productive meetings is a skill that can be developed and honed with practice.
 
 "The Art Of Effective Meetings: How To Run Successful And Productive Meetings At Work" is a comprehensive guide to making the most out of your meetings. This book provides practical tips and strategies for developing meeting policies and procedures, setting clear objectives, engaging in active listening, providing feedback and recognition, and handling conflict and negative attitudes.
