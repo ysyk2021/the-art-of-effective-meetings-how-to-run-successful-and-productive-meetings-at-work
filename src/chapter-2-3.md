@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Meetings
-=====================================================
 
 In this chapter, we explore the importance of self-reflection and assessment in improving our personal approach to meetings. By examining our meeting habits, behaviors, and attitudes, we can identify areas for growth and develop strategies to enhance our effectiveness as meeting participants and leaders. Self-assessment allows us to become more conscious of our contributions and create meaningful changes to promote successful and productive meetings.
 

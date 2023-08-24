@@ -1,5 +1,3 @@
-Managing Power Dynamics and Conflict
-================================================
 
 In any professional setting, power dynamics and conflicts can significantly impact the effectiveness and productivity of meetings. This chapter will explore strategies for effectively managing power dynamics and resolving conflicts to create a harmonious and productive meeting environment.
 

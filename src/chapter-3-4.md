@@ -1,5 +1,3 @@
-Developing Empathy and Compassion Through Meetings
-=============================================================
 
 In this chapter, we will explore the importance of developing empathy and compassion in meetings and how these qualities can enhance the overall effectiveness and productivity of workplace discussions. We'll discuss strategies and techniques that can help foster a supportive and understanding environment, allowing participants to connect on a deeper level and collaborate more effectively.
 

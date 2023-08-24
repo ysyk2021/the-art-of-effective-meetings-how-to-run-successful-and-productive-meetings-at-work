@@ -1,5 +1,3 @@
-Handling Difficult Conversations with Confidence
-===========================================================
 
 Difficult conversations are an inevitable part of professional life, but they can also be challenging and uncomfortable. In this chapter, we will explore strategies and techniques for handling difficult conversations with confidence during meetings.
 

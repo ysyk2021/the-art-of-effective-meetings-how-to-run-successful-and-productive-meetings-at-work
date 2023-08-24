@@ -1,5 +1,3 @@
-Addressing Resistance and Skepticism
-================================================
 
 In any workplace, addressing resistance and skepticism during meetings is essential for driving consensus and achieving successful outcomes. This chapter will explore effective strategies and techniques for handling resistance and skepticism in a productive manner.
 

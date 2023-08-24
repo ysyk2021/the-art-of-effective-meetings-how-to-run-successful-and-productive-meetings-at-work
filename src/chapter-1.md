@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Meetings are a common occurrence in the workplace, yet they often fail to achieve their intended purpose. In this book, we will explore strategies for running effective meetings that lead to productive and efficient outcomes.
 
@@ -37,5 +35,4 @@ Conclusion
 ----------
 
 Effective meetings are essential for achieving productive and efficient outcomes in the workplace. By understanding the importance of effective meetings, dispelling common misconceptions, and promoting strategies for running productive and efficient meetings, individuals can create a more positive and productive meeting environment, leading to enhanced creativity, collaboration, and success for the organization as a whole.
-
 

@@ -1,5 +1,3 @@
-Chapter 5: Leading Productive Meetings
-======================================
 
 Leading productive meetings requires effective facilitation and leadership skills, as well as the ability to manage time, encourage participation, and handle difficult situations with grace and tact. In this chapter, we'll explore strategies for leading successful and productive meetings.
 

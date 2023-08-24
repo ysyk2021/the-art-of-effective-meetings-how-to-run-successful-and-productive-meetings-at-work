@@ -1,5 +1,3 @@
-Techniques for Cultivating a Meeting Mindset
-=====================================================
 
 In this chapter, we will explore various techniques for cultivating a meeting mindset. By adopting these techniques, individuals can enhance their effectiveness and contributions during meetings, ultimately leading to more productive and successful outcomes.
 

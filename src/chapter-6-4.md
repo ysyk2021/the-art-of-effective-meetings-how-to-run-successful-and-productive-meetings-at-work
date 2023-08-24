@@ -1,5 +1,3 @@
-Handling Conflict and Negative Attitudes
-===================================================
 
 In this chapter, we will explore strategies for effectively managing conflict and negative attitudes during work meetings. Conflicts and negative attitudes can derail discussions and hinder productivity. By understanding the causes of conflict and negativity and implementing appropriate techniques, meeting organizers can foster a positive and collaborative environment. This chapter will provide practical tips for handling conflict and addressing negative attitudes to ensure successful and productive meetings.
 

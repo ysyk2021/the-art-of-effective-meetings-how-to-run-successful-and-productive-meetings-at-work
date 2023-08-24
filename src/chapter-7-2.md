@@ -1,5 +1,3 @@
-Assigning Action Items and Responsibilities
-======================================================
 
 In this chapter, we will delve into the crucial step of assigning action items and responsibilities during meetings. We will explore strategies and techniques to ensure that tasks are clearly defined, assigned to the appropriate individuals, and effectively followed up on. By implementing these practices, you can enhance accountability, productivity, and the overall success of your meetings.
 

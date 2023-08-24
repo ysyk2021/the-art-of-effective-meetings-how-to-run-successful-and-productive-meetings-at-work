@@ -1,5 +1,3 @@
-Overview of Effective Meetings
-=======================================
 
 In this chapter, we provide an overview of effective meetings and their importance in running successful and productive sessions at work. We explore the key elements that contribute to the effectiveness of meetings and discuss strategies for maximizing engagement, collaboration, and outcomes. Understanding the fundamentals of effective meetings sets the foundation for implementing strategies and techniques discussed throughout the book.
 

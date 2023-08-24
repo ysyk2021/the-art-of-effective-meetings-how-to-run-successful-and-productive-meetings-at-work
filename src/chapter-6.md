@@ -1,5 +1,3 @@
-Chapter 6: Improving Meeting Communication
-==========================================
 
 Effective communication is essential for running successful and productive meetings. In this chapter, we'll explore strategies for improving meeting communication, including developing effective communication strategies, utilizing active listening techniques, providing feedback and recognition, and handling conflict and negative attitudes.
 

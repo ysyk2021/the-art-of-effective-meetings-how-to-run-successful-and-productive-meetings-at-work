@@ -1,5 +1,3 @@
-Communicating Results and Next Steps
-===============================================
 
 In this chapter, we will explore the importance of effectively communicating meeting results and next steps. Clear and concise communication following a meeting is crucial to ensure that participants are aligned, informed, and equipped to take necessary actions. We will discuss strategies and best practices for conveying outcomes, sharing information, and setting the stage for future progress.
 

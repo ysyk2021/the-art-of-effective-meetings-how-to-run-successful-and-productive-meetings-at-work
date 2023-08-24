@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Barriers to Effective Meetings
-====================================================
 
 Despite the benefits of effective meetings, there are often barriers that can hinder their success. In this chapter, we will explore strategies for overcoming common barriers to effective meetings.
 

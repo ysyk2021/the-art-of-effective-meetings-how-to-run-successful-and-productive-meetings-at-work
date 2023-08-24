@@ -1,5 +1,3 @@
-Chapter 7: Following Up After Meetings
-======================================
 
 Following up after meetings is essential for ensuring that outcomes and decisions are implemented effectively. In this chapter, we will explore strategies for effective follow-up after meetings.
 

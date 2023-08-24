@@ -1,5 +1,3 @@
-Common Misconceptions about Meetings
-=============================================
 
 In this chapter, we will explore and debunk some of the common misconceptions surrounding meetings. By addressing these misconceptions, we can gain a better understanding of the true value and purpose of meetings in the workplace.
 

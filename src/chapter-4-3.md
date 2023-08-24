@@ -1,5 +1,3 @@
-Inviting the Right Participants
-========================================
 
 Inviting the right participants is crucial for running successful and productive meetings. In this chapter, we explore the importance of selecting the appropriate individuals to participate in meetings and discuss strategies for optimizing attendee selection. We delve into considerations such as purpose, expertise, roles, and diversity when inviting participants to ensure meaningful contributions and effective outcomes.
 

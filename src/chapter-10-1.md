@@ -1,5 +1,3 @@
-Recap of Key Strategies for Running Effective Meetings
-==============================================================================
 
 Effective meetings are key to achieving productive and efficient outcomes. In this book, we have explored numerous strategies for running effective meetings. Here is a recap of the key strategies:
 

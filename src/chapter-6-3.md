@@ -1,5 +1,3 @@
-Providing Feedback and Recognition
-=============================================
 
 In this chapter, we will explore the importance of providing feedback and recognition in running successful and productive meetings at work. Feedback and recognition are essential tools for fostering a positive and collaborative meeting culture. By understanding how to effectively provide feedback and recognition, you can encourage continuous improvement, boost morale, and enhance overall meeting performance. Let's delve into the key strategies for providing feedback and recognition in your meetings.
 

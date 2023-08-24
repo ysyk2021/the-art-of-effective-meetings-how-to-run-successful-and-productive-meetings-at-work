@@ -1,4 +1,4 @@
-# Introduction
+
 
 Meetings are an essential part of the workplace, but all too often they can become unproductive and frustrating. Fortunately, running successful and productive meetings is a skill that can be developed and honed with practice.
 

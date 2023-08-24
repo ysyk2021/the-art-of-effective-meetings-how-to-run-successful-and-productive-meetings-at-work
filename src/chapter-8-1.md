@@ -1,5 +1,3 @@
-Developing Meeting Policies and Procedures
-======================================================
 
 In order to run successful and productive meetings at work, it is essential to establish clear and effective meeting policies and procedures. This chapter explores the key components and considerations for developing these guidelines to ensure consistency, efficiency, and positive outcomes in every meeting.
 

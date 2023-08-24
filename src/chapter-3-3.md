@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-==================================================
 
 Setting realistic goals and objectives is a critical aspect of running effective and productive meetings at work. By establishing clear and achievable targets, you provide a sense of direction for the meeting and increase the likelihood of positive outcomes. In this chapter, we will explore the key principles and strategies for setting realistic goals and objectives that contribute to the art of effective meetings.
 

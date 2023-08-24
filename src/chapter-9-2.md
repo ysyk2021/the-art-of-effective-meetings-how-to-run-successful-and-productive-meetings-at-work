@@ -1,5 +1,3 @@
-Dealing with Negative Attitudes and Behavior
-========================================================
 
 In any professional setting, negative attitudes and disruptive behavior can hinder the productivity and effectiveness of meetings. This chapter will explore strategies for effectively managing negative attitudes and behavior to create a positive and productive meeting environment.
 

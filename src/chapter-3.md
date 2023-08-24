@@ -1,5 +1,3 @@
-Chapter 3: Developing a Meeting Mindset
-=======================================
 
 Developing a meeting mindset is essential for running successful and productive meetings. In this chapter, we'll explore techniques for cultivating a meeting mindset, including positive self-talk, visualization, setting realistic goals and objectives, and developing empathy and compassion through meetings.
 
