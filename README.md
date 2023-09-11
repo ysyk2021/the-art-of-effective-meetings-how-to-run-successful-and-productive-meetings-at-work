@@ -1,3 +1,6 @@
+# The Art Of Effective Meetings: How To Run Successful And Productive Meetings At Work
+
+Book Link: [https://zhengpublishing.com/the-art-of-effective-meetings-how-to-run-successful-and-productive-meetings-at-work/](https://zhengpublishing.com/the-art-of-effective-meetings-how-to-run-successful-and-productive-meetings-at-work/)
 
 Meetings are an essential part of the workplace, but all too often they can become unproductive and frustrating. Fortunately, running successful and productive meetings is a skill that can be developed and honed with practice.
 
